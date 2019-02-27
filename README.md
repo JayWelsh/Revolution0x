@@ -1,2 +1,2 @@
 # Revolution0x
-The Revolution is Decentralised
+The Revolution Decentralised
